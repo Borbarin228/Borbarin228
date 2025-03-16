@@ -1,4 +1,3 @@
-# Borbarin228
 <div align="center">
-  <img src="https://i.gifer.com/UK1u.gif" alt="...">
+  <img src="https://c.tenor.com/NmH01DJCHL0AAAAC/monkey-funny-animals.gif" alt="...">
 </div>
